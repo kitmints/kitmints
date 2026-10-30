@@ -1,6 +1,9 @@
 # Kaylee X. Kuhr
 
-[ kayleekuhr101@gmail.com ](mailto:kayleekuhr101@gmail.com) | (646) 202-3251
+[ kayleekuhr101@gmail.com ](mailto:kayleekuhr101@gmail.com)
+
+Computer Science & Environmental Science |
+Graduating May 2030
 
 ---
 
